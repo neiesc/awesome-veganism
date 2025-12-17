@@ -68,6 +68,9 @@ This list is an attempt to create a community driven approach to guarantee no-no
 - Ashland, OR, USA
   - [NW Raw](https://nwraw.com/) - Juices and snacks, vegan ice cream.
 
+- Bavel, Netherlands
+  - [Vannu](https://www.restaurantvannu.nl/) - Fancy plantbased dining with locally sourced ingredients. They serve accompanying homemade juices as well.
+    
 - Berkeley, CA, USA
   - [The Butcher's Son](https://www.thebutchersveganson.com/) - Comfort food spilling off of your plate. Grab a main, a couple of sides and a plenty of napkins.
 
